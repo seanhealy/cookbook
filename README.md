@@ -46,3 +46,7 @@
 - Microwave (do not add peanut butter before this, or you'll wreck the microwave and Julie will find you and make you regret it)
 - Add Peanut butter and garnishes
 - Serve to a dear friend or eat it yourself.
+
+Future stuff
+- some kind of mushroom soup casserole.
+- we can definitely make a stuffed pepper
