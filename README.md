@@ -26,6 +26,8 @@
 
 ## Parker's Peanut Butter Ramen
 
+<img src="http://d.pr/i/hydz"  width="500">
+
 > Traditional Ramen from a bag, with an 'exotic' twist.
 
 ### Ingredients
