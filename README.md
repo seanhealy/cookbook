@@ -1,4 +1,4 @@
-# Sean & Donald's Guide to the Jobber Kitchen
+# A Guide to the Jobber Kitchen
 
 ## Rice Pizza
 
