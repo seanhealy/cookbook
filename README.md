@@ -78,6 +78,8 @@
 14. Eat
 
 ## Soup From a Can
+<img src="http://mms.businesswire.com/media/20141110005272/en/440355/5/Salute-to-Service-Cans.jpg">
+
 > What it says on the tin
 
 ### Ingredients
